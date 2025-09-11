@@ -1,5 +1,1 @@
-- 👋 Hi man, It's Freakbob!
-- 👀 I’m interested in skibidi sigma toilet series
-- 🌱 I’m currently learning sigma code
-- 💞️ I’m looking to collaborate on skibidi toilet
-- ⚡ Fun fact: I'm sigma
+🍇🍇🍇🍇🍇🍇🍇
